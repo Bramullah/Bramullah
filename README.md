@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [in here](in here)
 
-- 📝 I regularly write articles on [blog](blog)
+- 📝 I regularly write articles on [Hi!](https://imfinethankyou3.wordpress.com/) 
 
 - 💬 Ask me about **Little Things**
 
