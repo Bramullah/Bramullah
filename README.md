@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Little Things**
 
-- 📫 How to reach me **Myemail**
+- 📫 How to reach me [Email Me!!](mailto:ibrahimbramullah@gmail.com) 
 
 - 📄 Know about my experiences [here](here)
 
