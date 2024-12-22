@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **manythings**
 
-- 👨‍💻 All of my projects are available at [in here](in here)
+- 👨‍💻 All of my projects are available at [in here](https://github.com/Bramullah?tab=repositories)
 
 - 📝 I regularly write articles on [Hi!](https://imfinethankyou3.wordpress.com/) 
 
